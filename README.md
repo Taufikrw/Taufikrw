@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Taufik Rahman Widodo
 - 👀 I’m interested in Multi-Platform Developer
-- 🌱 I’m currently learning at System Information UPN "Veteran" Yogyakarta
+- 🌱 I’m currently learning at Information System UPN "Veteran" Yogyakarta
 - 💞️ I’m looking to collaborate on (soon)
 - 📫 How to reach me in Instagram @taufik_69, Twitter @Kipotzzz
 
